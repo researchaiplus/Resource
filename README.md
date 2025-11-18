@@ -1,0 +1,2 @@
+# Resource
+Community shared
